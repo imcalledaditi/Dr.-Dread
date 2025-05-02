@@ -2,6 +2,9 @@
 
 Welcome to **Dr. Dread** – Your brutally honest guide to navigating life's chaos! ⚡ Whether you're spiraling through an existential crisis or just looking for raw, no-nonsense advice, Dr. Dread is here to provide emotional clarity and brutally honest insights that will leave you questioning everything and laughing through it all.
 
+![Alt Text](mom.jpg)
+![Alt Text](mom.jpg)
+
 ## 📌 About
 **Dr. Dread** isn’t your average wellness platform — it's an experience. A blend of dark humor, emotional wisdom, and unfiltered truth that confronts life's absurdities head-on. Whether you're struggling with overthinking, trapped in the cycle of doomscrolling, or simply trying to make sense of the madness, Dr. Dread is the companion you never knew you needed. No sugarcoating, no fluff — just fierce honesty and the kind of insight that might just change your life. 💀🖤
 
